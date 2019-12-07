@@ -1,1 +1,0 @@
-# snsavitscata.github.io
